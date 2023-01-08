@@ -1,1 +1,0 @@
-# Veri_Bilimi_Projesi_101
